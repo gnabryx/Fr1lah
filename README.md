@@ -1,3 +1,3 @@
 # Fr1lah
 
-Tutti i diritti del sito sono di propietà di Fr1lah
+Si informa che il sito è stato riadattato dal codice di madebyanto (anto.aurastudioitalia.it)
